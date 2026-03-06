@@ -4,3 +4,6 @@
 𑙒 ݃　　Puppy  ͜͝ |།ིྀ ͝ 　Seven𓈒　 ྀ　  ˙<br>
 ⏖ † ྀི  ![1000004749](https://github.com/user-attachments/assets/9de71db0-5ad6-438d-8310-9296f6da37fb)
 　𓏴ྀི 　　4Teen　　◝ ͜ ̣̣̥་།<br>
+ 
+
+𓈒ֵ۫𓏪ᣟ݂𓈒ᣟ݂ˑᴗᴗ֟ᴗmy pony layouts are made by @F3xDevesto 🍔♡﹒ྀི⌣﹒◦<br>
