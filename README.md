@@ -6,4 +6,4 @@
 　𓏴ྀི 　　5Teen　　◝ ͜ ̣̣̥་།<br>
  
 
-𓈒ֵ۫𓏪ᣟ݂𓈒ᣟ݂ˑᴗᴗ֟ᴗmy pony layouts are made by @F3xDevesto 🍔♡﹒ྀི⌣﹒◦<br>
+𓈒ֵ۫𓏪ᣟ݂𓈒ᣟ݂ˑᴗᴗ֟ᴗtaken . bisex.🍔♡﹒ྀི⌣﹒◦<br>
